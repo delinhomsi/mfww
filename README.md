@@ -26,7 +26,7 @@ Expwest是公认的稳定外网梯子，特别适合需要访问YouTube、Netfli
 ✔使用场景：用Expwest上外网非常简单。下载应用后，选择美国或香港服务器，即可流畅观看YouTube视频，无需担心缓冲。
 
 ## 2.Private Rick - 便宜又实用的外网梯子
-官网地址：[https://xuebi0702.com](https://xuebi0702.com)
+官网地址：[https://rick8888.com](https://rick8888.com)
 
 Private Rick 以隐私保护和低廉价格著称，是预算有限用户的理想选择。
 
